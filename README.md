@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ANMOl5l
 - 👀 I’m interested in Hardwork.
-- 🌱 I’m currently in Class 11th.
+- 🌱 I’m currently doing Python.
 - 💞️ I’m looking to for handsome Girlfriend.
 - 📫 How to reach me DM on anmolmaan5468@gmail.com.
 
